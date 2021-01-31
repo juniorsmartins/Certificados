@@ -1,2 +1,2 @@
 # Certificados-2020
- Certificados conquistados no ano de 2020. Uma variedade de assuntos estudados.
+ Certificados conquistados nos anos de 2020 e 2021.
